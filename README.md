@@ -13,8 +13,6 @@
 - 200 Free Easy
 
 
-
-# Collab2
 Leland Pulido, I will be adding a link explaining how wrestling works.
 
 # Training:
